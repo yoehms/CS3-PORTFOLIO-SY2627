@@ -1,1 +1,1 @@
-This repository is a portfolio of all activities for S.Y. 2025-2026.
+This repository is a portfolio of all activities for S.Y. 2026-2027. 
